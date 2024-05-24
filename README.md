@@ -2,4 +2,4 @@
 
 ## My name is Kacper! :poland:
 
-[:skull: Home Page](https://kacperrybczynski.com/) | [:skull: Twitter](https://twitter.com/kacperybczynski)
+[:skull: Home Page](https://kacperrybczynski.com/) | [:skull: X](https://x.com/kacperybczynski)
